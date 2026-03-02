@@ -7,7 +7,7 @@
 
 🎓 Master Ingénierie des Risques Économiques et Financiers  
 📍 Bordeaux, France  
-📧 alexandra@example.com  
+📧 alexa.millot@hotmail.fr
 🔗 [LinkedIn](https://www.linkedin.com/in/ton-profil/)  
 
 ---
